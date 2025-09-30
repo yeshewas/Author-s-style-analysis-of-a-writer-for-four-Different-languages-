@@ -1,0 +1,1 @@
+# Author-s-style-analysis-of-a-writer-for-four-Different-languages-
